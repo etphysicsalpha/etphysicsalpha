@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @etphysicsalpha
-- 👀 I’m interested in Comology, astrophysics, antrophology, phylosophy and life.
+- 👀 I’m interested in Comology, astrophysics, anthropology, philosophy and life.
 - 🌱 I’m currently learning about basic and human sciences, deep learning, IA, 
 - 💞️ I’m looking to collaborate on science's experiments, collaborations of data base avaiable informations
 - 📫 How to reach me johan.morenoq@udea.edu.co
